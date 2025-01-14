@@ -1,9 +1,3 @@
 # nickclasses
 
-
-for devopes class practicess
-
-
-
-
-thankyou
+EATing apple in the mornig
